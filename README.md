@@ -9,3 +9,5 @@ and then the biology of cancer etc i have to keep learning
 the comp sci stuff, i have to keep on top of bc things change
 
 IV is a combination of a couple of ideas, ill tell u in person more about that, theres things i know
+
+# goal for dec/jan is for me to take those 2 pages and turn them into 10 pages of writing, on my own
