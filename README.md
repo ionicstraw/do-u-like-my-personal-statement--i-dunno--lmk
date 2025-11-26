@@ -7,3 +7,5 @@ i wanna keep myself busy tho, i do want to work on those things and more, i can 
 and then the biology of cancer etc i have to keep learning
 
 the comp sci stuff, i have to keep on top of bc things change
+
+IV is a combination of a couple of ideas, ill tell u in person more about that, theres things i know
